@@ -1,0 +1,1 @@
+Take 1 Pizza Base then coat it nicely with Pizza / Pasta Sauce then add veggies and toppings then grate cheese. Preheat the oven on 180 degrees for 10 minutes and then put the pizza in the oven for 20 minutes. Pizza is ready to eat... Enjoy!!!!
